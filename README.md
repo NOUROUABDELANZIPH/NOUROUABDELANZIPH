@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Environmental science and engineering at Xi'an Jiaotong University;
 - 💞️ I’m looking to collaborate on Biomasse, energy, climate change , soutainable development and programming speciality;
 - 📫 How to reach me abdelnourou1@gmail.com;
-- 😄 Pronouns:Curiosity;
+- 😄 Pronouns:Mr;
 - ⚡ Fun fact: Learning and Programming.
 
 <!---
